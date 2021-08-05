@@ -1,0 +1,4 @@
+## Tempest
+This is the story of The Archipelago of Tempest. A wind-based society, ripe with wonder and filled with magic and mysteries. And at the center, a terrible storm has been raging as long as anyone can remember. So long, in fact, that not only have the denizens of Tempest got used to the storm, they have come to immensely depend upon it. But one day, seemingly out of nowhere, the storm has stopped. Sending society into screeching halt. On top of all that, a young village boy has started to display acts of fire magic that would normally take a lifetime of study.
+
+Help the people of Tempest learn to live in the new world they find themselves in as you swim, fight and soar your way to uncover the strange and explore the mysterious. Discover the past and what it means for the future. Not only for yourself, but for all.
